@@ -1,4 +1,4 @@
---[[                 Made by denkodin
+--[[                 Made by SwitherAnother
 YouTube channels:
 https://www.youtube.com/c/H2MinRobloxStudio
 http://www.youtube.com/c/EasyQuestinRobloxStudio
